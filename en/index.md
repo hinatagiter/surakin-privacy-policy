@@ -1,4 +1,4 @@
-# Privacy Policy – Surakin
+# Privacy Policy –Touch Me Not (Surakin)
 
 The mobile app **"Surakin"** respects your privacy and is operated based on the following principles.
 
